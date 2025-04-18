@@ -1,1 +1,1 @@
-IEEE Launchpad Newsletter
+IEEE LAUNCHPAD NEWSLETTER 
